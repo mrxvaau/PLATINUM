@@ -1,2 +1,6 @@
-# PLATINUM
-🌸OPENSOURCE-PROJECT🌸FREE-BUT-PASSWORD-PROTECT🌸NEED'D-PASSWORD?🌸INBOX-US🌸
+![IMG](https://i.imgur.com/1egtQeD.gif)
+![IMG](https://i.imgur.com/gHkr4fl.gif)
+![IMG](https://i.imgur.com/gHkr4fl.gif)
+![IMG](https://i.imgur.com/7oo9gG4.gif)
+![IMG](https://i.imgur.com/gHkr4fl.gif)
+![IMG](https://i.imgur.com/GLoTJts.gif)
